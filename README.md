@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @SilvAndr
+- 👀 I’m interested in Tech, gaming and Music
+- 🌱 I’m currently learning C (towards microprocessors) and some Web Development
+- 💞️ I’m looking to collaborate on Any type of projetct that is challenging and interesting at the same time
+- 📫 If u have something to tell me you can email my to: silvaandr057@gmail.com
+- :blue_heart: Thank you and have a nice day
